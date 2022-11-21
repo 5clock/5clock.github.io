@@ -1,5 +1,27 @@
 # 5clock.github.io
 
+# 1:00 Dawn of time
+
+There is a time for a greeting,
+ 
+there is a time for a goodbye.
+
+Time is history, and making
+
+someone be able to live and die.
+
+.
+
+ Time created the start and an end,
+
+like the beginning, dawn, and first.
+
+One who possess words that one tend
+
+to speak, but cannot due to thirst.
+
+
+
 ## Gerard Nolst Trenité - The Chaos (1922)
 
 Dearest creature in creation
